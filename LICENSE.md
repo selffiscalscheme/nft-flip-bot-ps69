@@ -1,4 +1,4 @@
-# 
+# advanced nft mint bot | flip-strategies + take-profit is the best nft mint bot, featuring flip-strategies and take-profit. Fast, smart, and optimized for NFT trading on
 
 
 
